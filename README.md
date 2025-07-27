@@ -1,8 +1,11 @@
 - Hi, I’m @shubhashreehotta
-- I'm 17, she/her, Demi-pansexual and introvert.
+- I'm 20, she/her, Asexual and introvert.
 - I'm an April Aries and an INTJ-T.
-- I’m interested in music, coffee, books and my solitude.
-- I’m currently learning biology.
-- I’m looking to collaborate on literature, philosophy and poetry,
+- I’m interested in music, chocolate, books and my solitude.
+- I’m currently an electrical engineering student.
+- Hobbies: Existing.
+- Learning Spanish.
 - How to reach me: Instagram- @shubhashreehotta
-- Dark Academia Aesthetic. <3
+- Want to move to Spain someday.
+- My Aesthetic changes every day.
+- Always building, always curious.
