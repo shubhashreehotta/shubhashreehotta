@@ -5,7 +5,7 @@
 - I’m currently an electrical engineering student.
 - Hobbies: Existing.
 - Learning Spanish.
-- How to reach me: Instagram- @shubhashreehotta
+- How to reach me: Instagram- @enchantingeunoia
 - Want to move to Spain someday.
 - My Aesthetic changes every day.
 - Always building, always curious.
